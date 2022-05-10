@@ -6,3 +6,4 @@ Paxtan is not a democracy.
 
 heyyy!!! Hello!!!
 
+Bhutan Too is not democracy.
